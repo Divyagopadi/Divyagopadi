@@ -22,7 +22,7 @@
 
 ### 📫 How to Reach Me:
 - 📧 Email: divyagopadi@gmail.com
-- 💬 LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/yourprofile)
+- 💬 LinkedIn: [divya-gopadi-7a627723a](https://www.linkedin.com/in/divya-gopadi-7a627723a)
 
 ### 😄 Pronouns:
 - She/Her
